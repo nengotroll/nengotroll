@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nengotroll
-- 👀 I’m interested in create memes adn jokes
+- 👀 I’m interested in create memes and jokes
 - 🌱 I’m currently learning thinks of life
 - 💞️ I’m looking to collaborate on illegal thinks XD
 - 📫 How to reach me nengotroll@gmail.com
